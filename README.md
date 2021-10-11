@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Soulwastaken
-- 📫 You can contact me on my discord(ItzSoul#0001)
+- 📫 You can contact me on my discord(definitelynotsoul#4958)
 
 
